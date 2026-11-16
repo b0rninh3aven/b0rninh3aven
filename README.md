@@ -1,15 +1,6 @@
 <div align="center">
+I𝗍'ꜱ 𝗋𝗲⍺ℓℓყ 𝗴ooᑯ 𝗍o ჩ𝗲⍺𝗋 ყoυֹׅ𝗋 ᥎ׁׅoıc𝗲 ꜱ⍺ყıղ𝗴 ოყ ղ⍺ო𝗲ㅤ...ㅤ౨ৎ
+♡︎ㅤ ı𝗍 ꜱoυֹׅղᑯꜱ ꜱo ꜱω𝗲𝗲𝗍
+coოıղ𝗴 ƒ𝗋oო 𝗍ჩ𝗲 ℓı𝗽ꜱ oƒ ⍺ղ ⍺ղ𝗴𝗲ℓㅤㅤ꒱꒱
 
-ᅠ𓈒  welcome to me, sweety   ִ̼    ఎ 
-<br><br>
-<img width="2897" height="1303" alt="НовыйХолст2" src="https://github.com/user-attachments/assets/33d662bb-0cfe-4134-b309-c746a3ab5230" />
-<sub>cr G_Nightzz on х</sub>
-<br><br><br>
-꒰ ᅟ call me Dolly or Meverlin  ‌۫۫   ࣪ 𓈒    ⌢ so8sx3sx7 ESTP VFEL ִ     ࿙   ‌۫۫   ࣪ 𓈒 pansexual-asexual, agender [he/they] ⌢     ͡   ︵  ♡   
-<br><br>
-<img width="2897" height="1303" alt="НовыйХолст2" src="https://github.com/user-attachments/assets/8a52a04a-98db-434c-88dc-d1cc0366e736" />
-<sub>cr Tommanichka on tg</sub>
-<br><br>
-﹕⠀⠀ㅤ ⏜︵  I love my gf so muchㅤׁㅤㅤᗜ this is true us ᗜㅤ࣭ㅤ
-<br><br>
-<img width="2897" height="1303" alt="НовыйХолст2" src="https://github.com/user-attachments/assets/ffe52b1a-bc0a-4530-86eb-f31efb090a61" />
+estj chol-mel so1sx2so6 vlfe rluai m[O]HIve/G/ true neutral VNBP
